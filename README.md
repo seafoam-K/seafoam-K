@@ -1,7 +1,7 @@
 - cr area
 - pjsk, crk/crob
 - kanade/mizuki fan ^^
-- any prnouns
+- any pronouns 
   
 
 <!---
